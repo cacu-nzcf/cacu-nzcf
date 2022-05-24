@@ -2,7 +2,7 @@
 
 We are part of the [New Zealand Cadet Forces](https://www.cadetforces.org.nz) (NZCF)—a military-styled, volunteer, youth organisation for NZ's successful leaders of tomorrow.
 
-Take a look at our [Unit Website](https://www.aucklandarmycadets.com) to find out more!
+Take a look at our [Unit Website](https://www.aucklandarmycadets.org.nz) to find out more!
 
 # Dare to Take the Challenge...
 > The New Zealand Cadet Forces (NZCF or Cadet Forces) is a voluntary, uniformed organisation which provides military-style leadership, personal 
